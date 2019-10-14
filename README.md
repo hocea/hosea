@@ -1,2 +1,2 @@
 # hosea
-huaamm
+//IF I DON'T HAVE TO DO IT, I WON'T. IF I HAVE TO EVOLVE IT, I'LL DO IT QUICKLY .....
